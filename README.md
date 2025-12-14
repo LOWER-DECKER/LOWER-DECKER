@@ -1,13 +1,38 @@
-Hie!! i'm adam, also known as Gamzee! i'm a fan of Club Penguin, Hometuck,Rhythm Heaven, etc! :3 
-Taken by Aaron <33!
-IWCUID
-![tumblr_79df863e6d13e2dff6b759a9c2f326f5_111954ff_1280](https://github.com/user-attachments/assets/15e5d46c-c346-4e8d-a9dd-5a6da1ffc264)
+       HAIIY i'm Boims, but I go by lots of names :PP
+I am a Boimler / Charles Calvin IRL and Prince Fluff Fictionkin
+
+13+ INT 
+
+Bigender
+
+gender
+
+bi
+
+b 
+
+Pro/darkship DNI
+
+STLD and Kirby fans PLEASE INT I BEG OF YOU
+
+Doubles feel free to interact :D
+
+if you are pinned to the top of myfriends list, that means i have full trust and you are one of my bestest friend ever <333!!
+
+![tumblr_30b112c90962d0920de2a6c2b8d07de2_e189df4a_1280](https://github.com/user-attachments/assets/0095e385-acb3-4929-8b26-822156391b46)
+
+please go check out my strawpage and tumblr for more info
+
+
+
+
+
 
 
 
 
 <!--
-**TerminallyCaprlclous/TerminallyCaprlclous** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**boimford/boimford** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
 
