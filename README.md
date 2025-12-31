@@ -9,6 +9,7 @@ Boimford
 ⛔ = busy/afk/not in a good mood
 
 🟢 = on tab
+
 <img width="640" height="26" alt="tumblr-4aab8bfc3b389a17c1de538d0dac3788-860a9e11-640" src="https://github.com/user-attachments/assets/c5a478d8-92da-49a1-b6b9-b0d14113de08" />
 
 
@@ -41,7 +42,8 @@ please go check out my strawpage and tumblr for more info
 ![ezgif-8dbb22ddbff8df97](https://github.com/user-attachments/assets/df82a820-0cc0-4ef6-bd76-75a7b4674f38)![524627248-24dc49ae-b44d-4a43-bd20-a50ae0dcb0be](https://github.com/user-attachments/assets/4690357b-fc5a-4b05-b9b8-8314145a6feb)
 ![524633324-62d5e731-20d7-4d26-b2f4-e167fe4b279f](https://github.com/user-attachments/assets/4750667a-2d2a-48aa-b024-9df7cab98a58)
 ![524629984-ccb1110c-e40f-44c7-8890-61cbe330d197](https://github.com/user-attachments/assets/203809f8-89a1-4c68-9448-23b0b9d9ee8e)
-![ezgif-488c3d33c2cadb9a](https://github.com/user-attachments/assets/f71bda26-75bd-4fc1-b178-ef06aa1b90fd)
+![ezgif-488c3d33c2cadb9a](https://github.com/user-attachments/assets/f71bda26-75bd-4fc1-b178-ef06aa1b90fd)![tumblr_b2cbed8a8adf476c9dc878577c952bae_55c15607_250](https://github.com/user-attachments/assets/2db83735-3da7-4edf-a94d-6ff2b994f249)
+
 
 
 
