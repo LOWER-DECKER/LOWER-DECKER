@@ -38,7 +38,11 @@ please go check out my strawpage and tumblr for more info
 
 ![ezgif-662d89e5bb1d0669](https://github.com/user-attachments/assets/c5b054c3-8712-4043-a994-b76b472d033f)
 
-![ezgif-8dbb22ddbff8df97](https://github.com/user-attachments/assets/df82a820-0cc0-4ef6-bd76-75a7b4674f38)
+![ezgif-8dbb22ddbff8df97](https://github.com/user-attachments/assets/df82a820-0cc0-4ef6-bd76-75a7b4674f38)![524627248-24dc49ae-b44d-4a43-bd20-a50ae0dcb0be](https://github.com/user-attachments/assets/4690357b-fc5a-4b05-b9b8-8314145a6feb)
+![524633324-62d5e731-20d7-4d26-b2f4-e167fe4b279f](https://github.com/user-attachments/assets/4750667a-2d2a-48aa-b024-9df7cab98a58)
+![524629984-ccb1110c-e40f-44c7-8890-61cbe330d197](https://github.com/user-attachments/assets/203809f8-89a1-4c68-9448-23b0b9d9ee8e)
+![ezgif-488c3d33c2cadb9a](https://github.com/user-attachments/assets/f71bda26-75bd-4fc1-b178-ef06aa1b90fd)
+
 
 
 
