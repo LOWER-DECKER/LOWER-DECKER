@@ -32,7 +32,10 @@ if you are pinned to the top of my friends list, that means i have full trust an
 
 please go check out my strawpage and tumblr for more info
 
-![ezgif-649185cabd80d5f9](https://github.com/user-attachments/assets/2c2057f0-74bd-4adb-ad7e-5305a1152b8c)
+
+![ezgif-662d89e5bb1d0669](https://github.com/user-attachments/assets/c5b054c3-8712-4043-a994-b76b472d033f)
+
+![ezgif-8dbb22ddbff8df97](https://github.com/user-attachments/assets/df82a820-0cc0-4ef6-bd76-75a7b4674f38)
 
 
 
