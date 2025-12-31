@@ -1,4 +1,5 @@
-       HAIIY i'm Boims, but I go by lots of names :PP
+Hallo
+
 I am a Boimler / Charles Calvin IRL and Prince Fluff Fictionkin
 <img width="2048" height="123" alt="tumblr_cfff47d58d7c8b4e28e393b7b545b9fe_c7155590_2048" src="https://github.com/user-attachments/assets/a67f7ca4-c529-4017-98a8-5a8e0ccc8487" />
 Boimford
@@ -8,6 +9,8 @@ Boimford
 ⛔ = busy/afk/not in a good mood
 
 🟢 = on tab
+<img width="640" height="26" alt="tumblr-4aab8bfc3b389a17c1de538d0dac3788-860a9e11-640" src="https://github.com/user-attachments/assets/c5a478d8-92da-49a1-b6b9-b0d14113de08" />
+
 
 
 13+ INT 
