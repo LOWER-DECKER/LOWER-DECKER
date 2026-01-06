@@ -2,7 +2,11 @@ Hallo
 
 I am a Boimler / Charles Calvin IRL and Prince Fluff Fictionkin
 <img width="2048" height="123" alt="tumblr_cfff47d58d7c8b4e28e393b7b545b9fe_c7155590_2048" src="https://github.com/user-attachments/assets/a67f7ca4-c529-4017-98a8-5a8e0ccc8487" />
-Boimford
+
+I think Star Trek Lower Decks is pretty cool
+I love love LOVE Wido and Ayden/p
+
+  Status : 
 
 🌙 = Offtab/Watching stuff (currently watching:)
 
@@ -24,7 +28,7 @@ bi
 
 b 
 
-Pro/darkship DNI
+I block freely
 
 STLD and Kirby fans PLEASE INT I BEG OF YOU
 
@@ -42,7 +46,8 @@ please go check out my strawpage and tumblr for more info
 ![ezgif-8dbb22ddbff8df97](https://github.com/user-attachments/assets/df82a820-0cc0-4ef6-bd76-75a7b4674f38)![524627248-24dc49ae-b44d-4a43-bd20-a50ae0dcb0be](https://github.com/user-attachments/assets/4690357b-fc5a-4b05-b9b8-8314145a6feb)
 ![524633324-62d5e731-20d7-4d26-b2f4-e167fe4b279f](https://github.com/user-attachments/assets/4750667a-2d2a-48aa-b024-9df7cab98a58)
 ![524629984-ccb1110c-e40f-44c7-8890-61cbe330d197](https://github.com/user-attachments/assets/203809f8-89a1-4c68-9448-23b0b9d9ee8e)
-![ezgif-488c3d33c2cadb9a](https://github.com/user-attachments/assets/f71bda26-75bd-4fc1-b178-ef06aa1b90fd)![tumblr_b2cbed8a8adf476c9dc878577c952bae_55c15607_250](https://github.com/user-attachments/assets/2db83735-3da7-4edf-a94d-6ff2b994f249)
+![ezgif-488c3d33c2cadb9a](https://github.com/user-attachments/assets/f71bda26-75bd-4fc1-b178-ef06aa1b90fd)![tumblr_b2cbed8a8adf476c9dc878577c952bae_55c15607_250](https://github.com/user-attachments/assets/2db83735-3da7-4edf-a94d-6ff2b994f249)![tumblr_9b6f53d2ffd379219ea90080637888bf_b64215df_250](https://github.com/user-attachments/assets/a580003e-a338-4a05-9424-1999e8e9ec5c)
+
 
 
 
