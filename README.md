@@ -22,11 +22,19 @@ I am Ham, but you can call me Boims :33
 
 ★ I have AuDHD (was diagnosed by a doctor), self-diagnosed people iwc
 
-☆ My main interests are Hamtaro, Star Trek Lower Decks, Kirby, Tomodachi Life, and Homestuck
+☆ My main interests are Hamtaro, The Lorax, Star Trek Lower Decks, Kirby, Tomodachi Life, and Homestuck
 
 ★ I am above 13 but below 26, that's all i will tell you
 
 ☆ I've been playing pony town for almost 3 years!
+
+★ I'm not a roleplayer. I don't join roleplays or participate in them unless and ONLY unless I am close with somebody 
+
+☆ Tone tags aren't necessary but very appreciated! ^_^
+
+★ I ship lots of ships, but my main ones are Brutherford, Goodbadge, Billerford, Kirfluff, and Ranler.
+
+☆ If I hide/block you, I had a reason to. I don't block for no reason.
 <img width="640" height="26" alt="tumblr_4aab8bfc3b389a17c1de538d0dac3788_860a9e11_640" src="https://github.com/user-attachments/assets/c4130945-6f85-4c2f-84b4-e06ff4bb7175" />
 
 **Status Meanings**
