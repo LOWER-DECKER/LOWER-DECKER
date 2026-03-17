@@ -1,4 +1,4 @@
-⭐ Current spinterest(s): Star Trek Lower Decks and Miitopia !
+⭐ - **Current spinterest(s): Star Trek Lower Decks and Miitopia !**
 
 ![tumblr_8c7217648c5edb1c978f4af6cdddc7e5_8f520f94_100](https://github.com/user-attachments/assets/b4eeee06-5b82-43da-8392-206cc89a5b36) 
 
@@ -7,9 +7,6 @@
 
 
 **This README is a WIP. So some info may not be here yet** 
-
-
-[ Hamha! ]
 
 
 I am Ham, but you can call me Boims :33 
@@ -24,7 +21,7 @@ I am Ham, but you can call me Boims :33
 
 ★ I have AuDHD (was diagnosed by a doctor), self-diagnosed people iwc
 
-☆ My main interests are Hamtaro, The Lorax, Star Trek Lower Decks, Kirby, Tomodachi Life, and Homestuck
+☆ I am more than likely offtab or making skins, whispering is appreciated!
 
 ★ I am above 13 but below 26, that's all i will tell you
 
