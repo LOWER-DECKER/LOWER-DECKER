@@ -3,15 +3,11 @@
 
 <img width="69" height="78" alt="ezgif-7eaed4268ffe2990" src="https://github.com/user-attachments/assets/1ba10d5e-dfd0-4b70-8e12-7f85c43f5ae8" />
 
-![tumblr_8c7217648c5edb1c978f4af6cdddc7e5_8f520f94_100](https://github.com/user-attachments/assets/ee97ebda-eebb-4834-a0af-5b862b16787e)
+![tumblr_8c7217648c5edb1c978f4af6cdddc7e5_8f520f94_100](https://github.com/user-attachments/assets/ee97ebda-eebb-4834-a0af-5b862b16787e)<img width="100" height="54" alt="ezgif-7b94e3b395aaa9c8" src="https://github.com/user-attachments/assets/55480b2d-fa28-480c-951d-d4f58936d851" />
 
-<img width="69" height="78" alt="ezgif-79b54041ba3211dc" src="https://github.com/user-attachments/assets/4e77ad12-9e70-481e-9004-b6b4dc0bb946" />
-
-
+<img width="69" height="78" alt="ezgif-79b54041ba3211dc" src="https://github.com/user-attachments/assets/01b3c8e5-b158-407b-9a11-43be1c933a1c" />
 
 
- 
-<img width="2048" height="123" alt="tumblr_cfff47d58d7c8b4e28e393b7b545b9fe_c7155590_2048" src="https://github.com/user-attachments/assets/f3238bd7-f024-401e-a7c5-14daf256711b" />
 
 
 **This README is a WIP. So some info may not be here yet** 
