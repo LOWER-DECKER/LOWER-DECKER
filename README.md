@@ -1,5 +1,5 @@
 ⭐ - **Current spinterest(s): Star Trek Lower Decks and Miitopia !**
-
+[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=But+we+don't+do+that.;Our+specialty+is+second+contact)](https://git.io/typing-svg)
 
 <img width="69" height="78" alt="ezgif-7eaed4268ffe2990" src="https://github.com/user-attachments/assets/1ba10d5e-dfd0-4b70-8e12-7f85c43f5ae8" />
 
