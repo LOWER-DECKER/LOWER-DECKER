@@ -1,5 +1,5 @@
 ⭐ - **Current spinterest(s): Star Trek Lower Decks and Miitopia !**
-[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=But+we+don't+do+that.;Our+specialty+is+second+contact)](https://git.io/typing-svg)
+
 
 <img width="69" height="78" alt="ezgif-7eaed4268ffe2990" src="https://github.com/user-attachments/assets/1ba10d5e-dfd0-4b70-8e12-7f85c43f5ae8" />
 
@@ -11,7 +11,7 @@
 
 
 **This README is a WIP. So some info may not be here yet** 
-
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=19&pause=1000&color=483764&width=435&lines=But+we+don't+do+that.)](https://git.io/typing-svg)
 
 I am Ham, but you can call me Boims :33 
 
