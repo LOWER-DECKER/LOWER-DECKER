@@ -7,9 +7,9 @@
 
 
 **This README is a WIP. So some info may not be here yet** 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=19&pause=1000&color=483764&width=435&lines=For+human,+grossly+underqualified..;For+feline,+grossly+overqualified.)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=19&pause=1000&color=483764&width=435&lines=For+human,+grossly+underqualified..;For+k9,+grossly+overqualified.)](https://git.io/typing-svg)
 
-I am Ham, but you can call me Boims :33 
+
 
 
 
