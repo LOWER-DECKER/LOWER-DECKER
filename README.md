@@ -5,7 +5,7 @@
 
 
 **This README is a WIP. So some info may not be here yet** 
-<img width="704" height="636" alt="Untitled2868_20260427182151" src="https://github.com/user-attachments/assets/4d7e1c94-5398-4789-bf62-dbb20dbcce7b" />
+<img width="604" height="536" alt="Untitled2868_20260427182151" src="https://github.com/user-attachments/assets/4d7e1c94-5398-4789-bf62-dbb20dbcce7b" />
 Tord and Rutherford IRLs/Fictionkins INT PLEASE!11!
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Bungee&pause=1000&color=1E5F16&width=435&lines=For+human%2C+grossly+underqualified%2C;For+K-9%2C+grossly+overqualified.)](https://git.io/typing-svg)
 
