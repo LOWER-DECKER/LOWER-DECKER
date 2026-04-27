@@ -1,4 +1,4 @@
-⭐ - **Current spintrest: Star Trek Lower Decks**
+⭐ - **Current interest(s): Star Trek Lower Decks and Eddsworld**
 
 
 <img width="69" height="78" alt="ezgif-79b54041ba3211dc" src="https://github.com/user-attachments/assets/01b3c8e5-b158-407b-9a11-43be1c933a1c" />
