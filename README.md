@@ -1,39 +1,37 @@
 ⭐ - **Current interest(s): Star Trek Lower Decks and Eddsworld**
 
 
-<img width="69" height="78" alt="ezgif-79b54041ba3211dc" src="https://github.com/user-attachments/assets/01b3c8e5-b158-407b-9a11-43be1c933a1c" />
-
 
 
 
 **This README is a WIP. So some info may not be here yet** 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=19&pause=1000&color=483764&width=435&lines=For+human,+grossly+underqualified..;For+k9,+grossly+overqualified.)](https://git.io/typing-svg)
 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Bungee&pause=1000&color=1E5F16&width=435&lines=For+human%2C+grossly+underqualified%2C;For+K-9%2C+grossly+overqualified.)](https://git.io/typing-svg)
 
 
 
 
 **Info to know**
 
-★ I am Bigender, and go by any pronouns including neos
+'★ I am Bigender, and go by any pronouns including neos
 
-☆ I am an alterhuman and IRL, please do not hesitate to ask what my kins are :D
+'☆ I am an alterhuman and IRL, please do not hesitate to ask what my kins are :D
 
-★ I have AuDHD (was diagnosed by a doctor), self-diagnosed people iwc
+'★ I have AuDHD (was diagnosed by a doctor), self-diagnosed people iwc
 
-☆ I am more than likely offtab or making skins, whispering is appreciated!
+'☆ I am more than likely offtab or making skins, whispering is appreciated!
 
-★ I am above 13 but below 26, that's all i will tell you
+'★ I am above 13 but below 26, that's all i will tell you
 
-☆ I've been playing pony town for almost 3 years!
+'☆ I've been playing pony town for almost 3 years!
 
-★ I'm not a roleplayer. I don't join roleplays or participate in them unless and ONLY unless I am close with somebody 
+'★ I'm not a roleplayer. I don't join roleplays or participate in them unless and ONLY unless I am close with somebody 
 
-☆ Tone tags aren't necessary but very appreciated! ^_^
+'☆ Tone tags aren't necessary but very appreciated! ^_^
 
-★ I ship lots of ships, but my main ones are Brutherford, Goodbadge, Kirfluff, BaconCola, Gamsol, and Ranler.
+'★ I ship lots of ships, but my main ones are Brutherford, Goodbadge, Kirfluff, BaconCola, Gamsol, and Ranler.
 
-☆ If I hide/block you, I had a reason to. I don't block for no reason.
+'☆ If I hide/block you, I had a reason to. I don't block for no reason.
 <img width="640" height="26" alt="tumblr_4aab8bfc3b389a17c1de538d0dac3788_860a9e11_640" src="https://github.com/user-attachments/assets/c4130945-6f85-4c2f-84b4-e06ff4bb7175" />
 
 **Status Meanings**
