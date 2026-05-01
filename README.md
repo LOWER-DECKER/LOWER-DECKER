@@ -26,13 +26,17 @@ ${\textsf{\color{#1E5F16}by a doctor), self-diagnosed people iwc}}$
 ${\textsf{\color{#1E5F16} '☆ I am more than likely offtab or }}$
 ${\textsf{\color{#1E5F16}making skins, whispering is appreciated! }}$
 
-${\textsf{\color{#1E5F16} '★ I am above 13 but below 26, that's all i will tell you}}$
+${\textsf{\color{#1E5F16} '★ I am above 13 but below 26, that's all}}$
+${\textsf{\color{#1E5F16}i will tell you}}$
 
-${\textsf{\color{#1E5F16} '☆ I've been playing pony town for almost 3 years!}}$
+${\textsf{\color{#1E5F16} '☆ I've been playing pony town for almost 3}}$
+${\textsf{\color{#1E5F16}years!}}$
 
-${\textsf{\color{#1E5F16}'★ I'm not a roleplayer. I don't join roleplays or participate in them unless and ONLY unless I am close with somebody }}$ 
+${\textsf{\color{#1E5F16}'★ I'm not a roleplayer.I don't join roleplays}}$
+${\textsf{\color{#1E5F16}or participate in them unless and ONLY unless I am close with somebody}}$ 
 
-${\textsf{\color{#1E5F16} '☆ Tone tags aren't necessary but very appreciated!}}$
+${\textsf{\color{#1E5F16} '☆ Tone tags aren't necessary but very}}$
+${\textsf{\color{#1E5F16}appreciated!}}$
 
 ${\textsf{\color{#1E5F16} '★ I ship lots of ships, but my main ones}}$
 ${\textsf{\color{#1E5F16}are Brutherford, Goodbadge, Kirfluff,}}$
@@ -110,6 +114,8 @@ Chikn Nuggit
 The Backwards House
 
 Henry Stickmin 
+
+
 
 **Not associated with anymore/lost interest**
 
