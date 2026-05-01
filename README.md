@@ -1,11 +1,3 @@
-
-⭐ - **Current interest(s): Star Trek Lower Decks and Eddsworld**
-
-
-
-
-
-**This README is a WIP. So some info may not be here yet** 
 <img width="344" height="24" alt="178" src="https://github.com/user-attachments/assets/e97b28c5-461d-494a-b08b-477afe81ec6f" />
 
 ![](https://komarev.com/ghpvc/?username=rutherfordsimplant&label=awesome+people&color=1E5F16)
