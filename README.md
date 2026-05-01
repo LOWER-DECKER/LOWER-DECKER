@@ -105,6 +105,20 @@ Henry Stickmin
 <br></details> <p align="left">
 </div>
 
+<details align="center"><summary> Moots to follow </summary> 
+
+@we
+@lovinglymythic on Tumblr and Tiktok
+@i_lied_i_am_a_dentist on Tiktok
+@waningcrescendo on Tumblr
+@professionaljasontoddfan on Tiktok
+@galvana28 on most socials
+@saltitheatreblog on Tumblr 
+@aimlesschemistsreqium on Tumblr
+@weird-mushro0ms on Tumblr
+
+and etc
+
 ![178](https://github.com/user-attachments/assets/7e84790e-81e5-4486-9d66-685d7ee182b4)
 ![203](https://github.com/user-attachments/assets/be7a83f0-dc9e-4553-8c6e-01285b12066e)
 
