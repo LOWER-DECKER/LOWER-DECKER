@@ -60,7 +60,11 @@ ${\textsf{\color{#1E5F16} I don't block for no reason}}$<br>
 </div>
 
 <details align="center"><summary> Fandoms </summary> 
+🐾
+  
+**Bolded=current spinterest**
 
+  
 **Star Trek: Lower Decks**
 
 Across The Universe
@@ -101,13 +105,41 @@ My Singing Monsters
 
 TANKMEN
 
+Chikn Nuggit
+
+The Backwards House
+
 Henry Stickmin 
+
+**Not associated with anymore/lost interest**
+
+Osmosis Jones (haven't watched the movie since 2023)
+
+The Lorax (THOSE preppies got to it)
+
+Alphabet/Number Lore (it's a brainrotted logo kid/adult fandom now)
+
+Sprunki (take a WIIILD guess)
+
+Dandy's World (I don't like the fanbase and I never played the game)
+
+Adopt Me (again, preppies got to it and ruined it for me.)
+
+ASDFMovie (I had an experience with someone in it [nothing too bad])
+
+Interland (It reminds me of my past relationship with oomf)
+
+Wonder (does this even have a fandom)
+
+SML (the humor nowadays is not it. The more I watch the more I despise it.)
+
+
 <br></details> <p align="left">
 </div>
 
 <details align="center"><summary> Moots to follow </summary> 
+  ❤️
 
-@we
 @lovinglymythic on Tumblr and Tiktok
 @i_lied_i_am_a_dentist on Tiktok
 @waningcrescendo on Tumblr
@@ -116,8 +148,8 @@ Henry Stickmin
 @saltitheatreblog on Tumblr 
 @aimlesschemistsreqium on Tumblr
 @weird-mushro0ms on Tumblr
-
-and etc
+<br></details> <p align="left">
+</div>
 
 ![178](https://github.com/user-attachments/assets/7e84790e-81e5-4486-9d66-685d7ee182b4)
 ![203](https://github.com/user-attachments/assets/be7a83f0-dc9e-4553-8c6e-01285b12066e)
