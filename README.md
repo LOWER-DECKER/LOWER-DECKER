@@ -10,9 +10,8 @@
 
 ![](https://komarev.com/ghpvc/?username=rutherfordsimplant&label=awesome+people&color=1E5F16)
 <img width="604" height="536" alt="Untitled2868_20260427182151" src="https://github.com/user-attachments/assets/4d7e1c94-5398-4789-bf62-dbb20dbcce7b" />
-<img width="344" height="24" alt="178" src="https://github.com/user-attachments/assets/9738347d-713d-4649-8244-a9a27155aa69" />
 
-Tord and Rutherford IRLs/Fictionkins INT PLEASE!11!
+EW and lwd IRLs/Fictionkins INT PLEASE!11!
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Bungee&pause=1000&color=1E5F16&width=435&lines=For+human%2C+grossly+underqualified%2C;For+K-9%2C+grossly+overqualified.)](https://git.io/typing-svg)
 
 
@@ -38,6 +37,7 @@ Tord and Rutherford IRLs/Fictionkins INT PLEASE!11!
 
 '★ I ship lots of ships, but my main ones are Brutherford, Goodbadge, Kirfluff, BaconCola, Gamsol, and Ranler.
 
+
 '☆ If I hide/block you, I had a reason to. I don't block for no reason.
 ![179](https://github.com/user-attachments/assets/da9de7e0-a2b1-4362-81d1-7fde84d39e43)
 **Status Meanings**
@@ -50,7 +50,9 @@ Tord and Rutherford IRLs/Fictionkins INT PLEASE!11!
 
 Thaz all I think
 
-I <3 Wido
+I <3 Tord
+![178](https://github.com/user-attachments/assets/b231f4d7-aac0-43c1-99f7-1bb9200abd19)
+
 
 𝗕𝗹𝗶𝗻𝗸𝗶𝗲/𝗦𝘁𝗮𝗺𝗽 𝗰𝗼𝗹𝗹𝗲𝗰𝘁𝗶𝗼𝗻 🐾
 ![180](https://github.com/user-attachments/assets/f26390aa-6595-4c81-a9ae-36991ced59c6)![524629984-ccb1110c-e40f-44c7-8890-61cbe330d197](https://github.com/user-attachments/assets/17d87720-37f7-4056-91ef-933a97b27719)
