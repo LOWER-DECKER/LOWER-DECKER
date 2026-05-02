@@ -163,6 +163,10 @@ SML (the humor nowadays is not it. The more I watch the more I despise it.)
 <br></details> <p align="left">
 </div>
 
+<details align="center"><summary> 👾 –Kinsonas/OC list (WIP)</summary> 
+<br></details> <p align="left">
+</div>
+
 ![178](https://github.com/user-attachments/assets/7e84790e-81e5-4486-9d66-685d7ee182b4)
 ![203](https://github.com/user-attachments/assets/be7a83f0-dc9e-4553-8c6e-01285b12066e)
 
