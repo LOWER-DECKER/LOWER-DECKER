@@ -29,7 +29,7 @@ ${\textsf{\color{#1E5F16}making skins, whispering is appreciated! }}$
 ${\textsf{\color{#1E5F16} '★ I am above 13 but below 26, that's all}}$
 ${\textsf{\color{#1E5F16}i will tell you}}$
 
-${\textsf{\color{#1E5F16} '☆ I've been playing pony town for almost 3}}$
+${\textsf{\color{#1E5F16} '☆ I've been playing pony town for 3}}$
 ${\textsf{\color{#1E5F16}years!}}$
 
 ${\textsf{\color{#1E5F16}'★ I'm not a roleplayer.I don't join roleplays}}$
