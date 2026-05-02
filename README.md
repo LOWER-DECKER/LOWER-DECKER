@@ -44,6 +44,12 @@ ${\textsf{\color{#1E5F16}BaconCola, Gamsol, and Ranler}}$
 
 ${\textsf{\color{#1E5F16} '☆ If I hide/block you, I had a reason to. }}$
 ${\textsf{\color{#1E5F16} I don't block for no reason}}$<br>
+
+${\textsf{\color{#1E5F16} '★ I have attatchment issues and tend to obbsess over someone and talk to them alot.}}$
+${\textsf{\color{#1E5F16}i'm also very talkative and energetic with my}}$
+${\textsf{\color{#1E5F16}speeches when i'm}}$
+${\textsf{\color{#1E5F16}with someone I love or something i'm}}$
+${\textsf{\color{#1E5F16}interested in is mentioned.}}$
 <br></details> <p align="left">
 </div>
 
